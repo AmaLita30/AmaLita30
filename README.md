@@ -2,7 +2,7 @@
 - 👀 I’m interested in my studies
 - 🌱 I’m currently learning phyton 
 - 💞️ I’m looking to collaborate on every services by sofware free and others
-- 📫 How to reach me writining
+- 📫 How to reach me writining to me
 - 😄 Pronouns:  Amalita
 - ⚡ Fun fact: I'am student
 
